@@ -14,10 +14,10 @@ Je m'appelle Nathan Machrouh, j'ai 23 ans et je suis actuellement en formation �
 
 **Expérience professionnelle**
 
-- 27 Février 2019 -- 30 avril 2019 : Employé polyvalent au restaurant **McDonalds** 
+- 27 Février 2019 -- 30 avril 2019 : Employé polyvalent au restaurant **McDonalds**. 
     *Préparation des plats*
     
-- Février 2018 -- Juin 2018 : Médiateur Interculturel à la **Bibliothéque Georges Pompidou**
+- Février 2018 -- Juin 2018 : Médiateur Interculturel à la **Bibliothéque Georges Pompidou**.
     *Informer et orienter les lecteurs de la bibliothéque*
     
 **Hobbies**
