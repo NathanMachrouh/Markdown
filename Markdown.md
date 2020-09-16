@@ -2,7 +2,7 @@
 
 Je m'appelle Nathan Machrouh, j'ai 23 ans et je suis actuellement en formation à la Wild Code School de Reims pour passer le titre professionnel "Développeur Web et Web Mobile"
 
-(https://drive.google.com/file/d/1_IWpqaV_mtuJdQ92uDBbAZSNFBCjHsk9/view?usp=sharing)
+[Photo profil](https://drive.google.com/file/d/1_IWpqaV_mtuJdQ92uDBbAZSNFBCjHsk9/view?usp=sharing)
 
 [Github](https://github.com/NathanMachrouh)
 [Linkedin](https://www.linkedin.com/in/nathan-machrouh-ba95521b2/)
